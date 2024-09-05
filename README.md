@@ -1,1 +1,0 @@
-# danielgloris.github.io
